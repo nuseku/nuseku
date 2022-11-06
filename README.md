@@ -1,2 +1,2 @@
-- Hi! I'm nuseku.
+- Hi! I'm Nuray.
 - The best way to reach me is through my email, sefnuray@gmail.com
